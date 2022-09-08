@@ -1,2 +1,2 @@
 # mi-prier-resositorio
-repositorio metodologia
+trabajar de 9 a 5 que forma mas dura de ganarse la vida
